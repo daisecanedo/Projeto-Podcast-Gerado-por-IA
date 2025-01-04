@@ -18,6 +18,6 @@
 
   ## 🎙 Resultado
 
-  - [Podcast](https://youtu.be/zvhqgj5RKa8)
+  - [Podcast](https://youtu.be/XBk_yFVDQMs)
 
 ![0104 (1)-Cover](https://github.com/user-attachments/assets/eee2f986-1750-4528-b30f-565f46437722)
